@@ -1,4 +1,4 @@
-![ryan_blourchi-20210830-0001](https://user-images.githubusercontent.com/83140039/131684471-adef1ef2-b62d-477a-882c-5c506a190d3a.jpg)
+![ryan_blourchi-20210830-0001]
 - 👋 Hi, I’m LAZARUS
 - IT doesn't matter anyway 
 <!---
