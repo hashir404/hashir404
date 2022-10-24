@@ -1,4 +1,4 @@
-![ryan_blourchi-20210830-0001]
+
 - 👋 Hi, I’m LAZARUS
 - IT doesn't matter anyway 
 <!---
